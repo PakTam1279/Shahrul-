@@ -1,0 +1,2 @@
+# Shahrul-
+Pemikiran terbuka
